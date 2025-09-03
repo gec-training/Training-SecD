@@ -12,4 +12,4 @@ Ujjwal Kumar Arun Chouhan, 7978155465, ujjubond990@gmail.com
 shreya 9508416449 1469.shreya@gmail.com
 Prity Kumari,7001037405,prity6427@gmail.com
 kavya, 9234626884, guptakavya615@gmail.com
-prangya sree pattanayak,+917381401751,prangyasreepatanayak@gmail.com
+prangya sree pattanayak,2301292277,prangyasreepatanayak@gmail.com
