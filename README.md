@@ -14,3 +14,4 @@ Prity Kumari,7001037405,prity6427@gmail.com</br>
 kavya, 9234626884, guptakavya615@gmail.com</br>
 MONALISHA DAS +918249066798 monalishad349@gmail.com</br>
 Supriya Tiyadi,2301292384,supriyatiyadi2005@gmail.com</br>
+prangya sree pattanayak,+917381401751,prangyasreepatanayak@gmail.com</br>
